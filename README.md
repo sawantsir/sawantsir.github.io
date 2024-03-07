@@ -1,1 +1,1 @@
-## In loving Memory of Sawant Sir.
+## In loving memory of Sawant Sir.
